@@ -1,2 +1,7 @@
 # belajar-kolaborasi
-Belajar GitHub di Dicoding sangat menyenangkan!
+- kolaborasi dengan @nsfis
+- belajar GitHub Dicoding
+- belajar di dicoding yuk
+- ayo belajar
+- ayo
+- Update 3
